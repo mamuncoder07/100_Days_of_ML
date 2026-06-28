@@ -120,7 +120,7 @@ If you find this repository helpful, don't forget to ⭐ the repository.
 
 **GitHub:** https://github.com/mamuncoder07
 
-**LinkedIn:** https://www.linkedin.com/in/mamun-reja
+**LinkedIn:** www.linkedin.com/in/mamun-reja-269192336
 
 ---
 
